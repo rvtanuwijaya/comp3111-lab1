@@ -1,0 +1,1 @@
+Richard Valent Tanuwijaya 20731411
